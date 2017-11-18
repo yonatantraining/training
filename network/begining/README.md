@@ -1,0 +1,1 @@
+Read part one in "networks" book and only then answer exercise.docx
